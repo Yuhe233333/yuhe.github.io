@@ -1,6 +1,6 @@
 ## My name is Yuhe. 
 
-Anhui University & the Institute of Automation, Chinese Academy of Sciences.
+Anhui University & Institute of Automation, Chinese Academy of Sciences.
 
 Master Student.
 
